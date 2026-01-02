@@ -2,7 +2,7 @@
 
 🔭 I’m currently working on React
 
-🌱 I’m currently learning NodeJS , TS , Making Some API's
+🌱 I’m currently Working NodeJS , TS , Making Some API's
 
 💬 Ask me about Web development related stuff
 
