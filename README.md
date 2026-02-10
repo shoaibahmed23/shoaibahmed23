@@ -8,5 +8,5 @@
 
 😄 Pronouns: He/His
 
-📫 How to reach me: YouTube @ezzycodee Instagram @ezzycodee
+📫 How to reach me: 
  
